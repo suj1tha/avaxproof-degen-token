@@ -1,0 +1,1 @@
+# avaxproof-degen-token
